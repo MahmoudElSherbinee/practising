@@ -1,1 +1,1 @@
-Practising to be exeptional.
+Practise to be exeptional.
